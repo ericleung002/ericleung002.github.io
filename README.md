@@ -25,3 +25,9 @@
 正在學習廣東話的小朋友
 任何想要提高廣東話詞彙量的孩子
 立即下載"廣東話發音練習"，讓您的孩子在遊戲中學習，在學習中成長。語言學習從未如此簡單和有趣！
+
+如果需要整詢，可到這個網址留言，本人會盡快處理相關問題：
+https://github.com/ericleung002/ericleung002.github.io/issues
+
+或Email可我查詢：
+ericleung002@gmail.com

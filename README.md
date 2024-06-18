@@ -31,6 +31,3 @@ https://github.com/ericleung002/ericleung002.github.io/issues
 
 或Email可我查詢：
 ericleung002@gmail.com
-
-討論區歡迎留言：
-https://discord.gg/J5jQmqmk
